@@ -1,5 +1,5 @@
-- 👋 Hi, I’m @JeremyGregory
+- 👋 Hi, I’m Jeremy
 - 👀 I’m interested in Java Script
 - 🌱 I’m currently learning Java Script 
-- 💞️ I’m looking to colage on Binus Bandung
+- 💞️ I’m looking to colage on universitas katolik parahyangan
 - 📫 How to reach me Dm Me On Discord Jeree#3797
